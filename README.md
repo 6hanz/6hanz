@@ -16,7 +16,7 @@
     <img width="390" height="410" src="https://i0.wp.com/tshirtatlowprice.com/wp-content/uploads/2024/03/Rotten-Dot-Com-When-Hell-Is-Full-The-Dead-Will-Walk-Earth-Pure-Evil-Since-1996-Flush-Please-Shirt.png?ssl=1">
 </p> 
 <p align="center"> 
-  <img width="1300" height="300" src="https://s2.ezgif.com/tmp/ezgif-2-01e5545ace.gif">
+  <img width="1300" height="300" src="https://media1.tenor.com/m/B13HRe31hVQAAAAd/rayquaza.gif">
 </p> 
 <p align="center"> 
   <img width="1300" height="300" src="https://64.media.tumblr.com/631a1cda0de61dfc4db1d8fb448c0e1c/30218bc2fc6afd76-5c/s1280x1920/0790c5aec25596f83fe50a3fc193582df8655760.gif">
