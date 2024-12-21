@@ -10,8 +10,8 @@
 <p align="center"> 𝐈 𝐅𝐄𝐄𝐃 my ears anything from soviet 𝐨𝐩𝐞𝐫𝐚 to 𝐛𝐥𝐚𝐜𝐤 metal (TOTAL 𝐏𝐎𝐙𝐄𝐑 BEHAVIOUR)
 
   
-<p align="center">
-    <img width="390" height="410" src="https://i0.wp.com/tshirtatlowprice.com/wp-content/uploads/2024/03/Rotten-Dot-Com-When-Hell-Is-Full-The-Dead-Will-Walk-Earth-Pure-Evil-Since-1996-Flush-Please-Shirt.png?ssl=1">
+<p align="center"> <a href="https://pokemondb.net/pokedex/zorua"><img src="https://img.pokemondb.net/sprites/black-white/anim/normal/zorua.gif" alt="Zorua"></a> <a href="https://pokemondb.net/pokedex/zoroark"><img src="https://img.pokemondb.net/sprites/black-white/anim/normal/zoroark.gif" alt="Zoroark"></a>
+    <img width="350" height="370" src="https://i0.wp.com/tshirtatlowprice.com/wp-content/uploads/2024/03/Rotten-Dot-Com-When-Hell-Is-Full-The-Dead-Will-Walk-Earth-Pure-Evil-Since-1996-Flush-Please-Shirt.png?ssl=1"> <img src="https://img.pokemondb.net/sprites/black-white/anim/normal/zoroark.gif" <a href="https://pokemondb.net/pokedex/zorua"><img src="https://img.pokemondb.net/sprites/black-white/anim/normal/zorua.gif" alt="Zorua"></a>
 </p> 
 <p align="center"> 
   <img width="1300" height="300" src="https://media1.tenor.com/m/B13HRe31hVQAAAAd/rayquaza.gif">
